@@ -3,3 +3,6 @@ Don't leave me alone
 I can fly!!!
 How careless we could be
 Sha, sha-ba-da, sha-ba-da-ca, feel good
+
+
+Alore on sort pour oublier tous les problemes
